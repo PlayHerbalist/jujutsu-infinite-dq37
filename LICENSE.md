@@ -1,4 +1,4 @@
-
+automatic Scripts for sol's rng is the best sol's rng Script, featuring auto-farm and god mode. Safe and powerful for all your needs.
 
 
 
